@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @mwsussy
-- 👀 I’m interested in coding
-- 🌱 I’m currently learning html
-- 💞️ I’m looking to collaborate on apple for future
+- 👀 I’m an caffeine addict
+- 🌱 I’m currently learning newbi coding languages♥︎
 - 📫 How to reach me email me-dhruvsaraswat6969@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i play games...a lot actually
